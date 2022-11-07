@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Neliosc
+- 👀 I’m interested in all tech information and development
+- 🌱 I’m currently learning basics
